@@ -31,7 +31,7 @@
 ##感激
 感谢以下的项目,排名不分先后
 
-* [百度](https://baidu.com/) 
+* [http://www.mimi1188.com](https://baidu.com/) 
 * [新浪](https://sina.com/)
 * [网易](https://163.com)
 
