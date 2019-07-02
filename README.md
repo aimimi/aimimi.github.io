@@ -1,7 +1,9 @@
-### 爱咪咪最新地址
-一个在线编辑markdown文档的编辑器
 
-向Mac下优秀的markdown编辑器mou致敬
+## 爱咪咪最新地址
+
+* [http://www.mimi1188.com](https://baidu.com/) 
+* [新浪](https://sina.com/)
+* [网易](https://163.com)
 
 ## MaHua有哪些功能？
 
@@ -16,10 +18,8 @@
 * 预览区域`代码高亮`
 * 所有选项自动记忆
 
-## 有问题反馈
-在使用中有任何问题，欢迎反馈给我，可以用以下联系方式跟我交流
-
-* 邮件(dev.hubo#gmail.com, 把#换成@)
+## 发送邮件获取
+* 邮件(aimimi1188@gmail.com, )
 * QQ: 287759234
 * weibo: [@草依山](http://weibo.com/ihubo)
 * twitter: [@ihubo](http://twitter.com/ihubo)
