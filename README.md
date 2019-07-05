@@ -1,5 +1,5 @@
 
-## 爱咪咪最新地址
+## 爱咪咪AV最新地址
 
 * [http://www.mimi1166.com](http://www.mimi1166.com) 
 * [http://www.mimi1177.com](http://www.mimi1177.com)
