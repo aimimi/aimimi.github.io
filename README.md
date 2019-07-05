@@ -1,8 +1,8 @@
 
 ## 爱咪咪最新地址
 
-* [http://www.mimi1188.com](http://www.mimi1188.com) 
-* [http://www.mimi1188.com](http://www.mimi1188.com)
+* [http://www.mimi1166.com](http://www.mimi1166.com) 
+* [http://www.mimi1177.com](http://www.mimi1177.com)
 * [http://www.mimi1188.com](http://www.mimi1188.com)
 
 ## 收藏地址发布页
@@ -16,7 +16,7 @@
 
 ## 永久地址
 
-* [http://www.mimi1188.com](http://www.mimi1188.com) 
+* [http://www.mimi1199.com](http://www.mimi1199.com) 
 
 ## 注意事项
 
