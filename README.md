@@ -1,22 +1,22 @@
 
 ## 爱咪咪最新地址
 
-* [http://www.mimi1188.com](https://baidu.com/) 
-* [http://www.mimi1188.com](https://sina.com/)
-* [http://www.mimi1188.com](https://163.com)
+* [http://www.mimi1188.com](http://www.mimi1188.com) 
+* [http://www.mimi1188.com](http://www.mimi1188.com)
+* [http://www.mimi1188.com](http://www.mimi1188.com)
 
 ## 收藏地址发布页
 
 * [https://aimimi.github.io/](https://aimimi.github.io/) 
-* [http://www.mimi1188.com](https://baidu.com/) 
+
 
 ## 发送邮件获取
 
-* 邮件(aimimi1188@gmail.com, )
+* 邮件(aimimi11@hotmail.com, )
 
 ## 永久地址
 
-* [http://www.mimi1188.com](https://baidu.com/) 
+* [http://www.mimi1188.com](http://www.mimi1188.com) 
 
 ## 注意事项
 
