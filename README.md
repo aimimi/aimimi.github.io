@@ -12,7 +12,7 @@
 
 ## 发送邮件获取
 
-* 邮件(aimimi11@hotmail.com )
+* 邮件aimimi1188@gmail.com
 
 ## 永久地址
 
