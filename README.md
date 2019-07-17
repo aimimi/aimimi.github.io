@@ -5,6 +5,14 @@
 * [http://www.mimi1177.com](http://www.mimi1177.com)
 * [http://www.mimi1188.com](http://www.mimi1188.com)
 
+## 福利导航最新地址
+
+* [色吧福利导航](http://www.seba.live) 
+* [不得姐福利导航](http://www.budejie.vip)
+* [大姨子福利导航](http://www.dayizi.vip)
+* [168福利导航](http://www.168dh.vip)
+* [1024福利导航](http://www.1024dh.vip)
+
 ## 收藏地址发布页
 
 * [https://aimimi.github.io/](https://aimimi.github.io/) 
