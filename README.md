@@ -5,6 +5,10 @@
 * [http://www.mimi1177.com](http://www.mimi1177.com)
 * [http://www.mimi1188.com](http://www.mimi1188.com)
 
+## 妖媚小萝莉最新地址
+
+* [http://luoli5.vip](http://luoli5.vip) 
+
 ## 福利导航最新地址
 
 * [色吧福利导航](http://www.seba.live) 
